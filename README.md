@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... idk actually lol. Gamedev mainly but I guess it will be a long way, probably will try something sompler before.
 - 🌱 I’m currently learning ... C# and how to programm in general. Knowledge level: bit more than 0 :)
 - 💞️ I’m looking to collaborate on ... 
-- 📫 How to reach me ... you sure you want this lol? Think twice. Ok then go for it: n00dles@gmail.com
+- 📫 How to reach me ... you sure you want this lol? Think twice. Ok then go for it: n00dles7121@gmail.com
 - ⚡ Fun fact: ... me. Am kind of joke myself you know.
 
 <!---
